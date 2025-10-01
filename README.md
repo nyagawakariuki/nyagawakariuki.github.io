@@ -9,7 +9,7 @@
 
 I am a Master's student in the Department of Philosophy at the University of Wisconsin-Milwaukee. 
 
-You can contact me by email at kariuki@uwm.edu**.
+You can contact me by email at kariuki@uwm.edu.
 
 <br clear="all"/>
 
